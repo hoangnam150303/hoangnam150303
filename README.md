@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **hoangnam150303@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1l-leJpCXGI-kt87lOPc1qjPaHUG_1UeV/view?usp=drive_link](https://drive.google.com/file/d/1l-leJpCXGI-kt87lOPc1qjPaHUG_1UeV/view?usp=drive_link)
+- 📄 Know about my experiences (https://drive.google.com/file/d/1mN_Y-cSOk-0hJ80o6-tePM5G5GDuP8WN/view?usp=drive_link)
 
 - ⚡ Fun fact **I love playing football, cooking and painting**
 
